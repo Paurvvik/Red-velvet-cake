@@ -1,0 +1,1 @@
+red velvet cake recipe | easy & moist eggless velvet cake recipe with detailed photo and video recipe. a traditional red coloured or dark red brown moist red velvet cake with white cream cheese icing or ermine frosting. it is considered one of the moist cake ever, perhaps due to the alkaline acidic substances used like vinegar or buttermilk in this cake recipe.
